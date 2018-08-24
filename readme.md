@@ -1,2 +1,2 @@
 Brett Jackson
-You either win or you learnthere is no loss
+You either win or you learn there is no loss
